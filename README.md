@@ -1,1 +1,9 @@
-# dfc.2937107381.noob.hackers67.infect.in
+https://www.upsara.com/do.php?img=32969
+https://www.upsara.com/do.php?img=32970
+https://www.upsara.com/do.php?img=32968
+https://www.upsara.com/do.php?img=32967
+https://www.upsara.com/do.php?img=32966
+https://www.upsara.com/do.php?img=32965
+https://www.upsara.com/do.php?img=32964
+https://www.upsara.com/do.php?img=32963
+https://www.upsara.com/do.php?img=32962
